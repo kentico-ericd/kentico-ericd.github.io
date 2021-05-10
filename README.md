@@ -1,1 +1,0 @@
-# kentico-ericd.github.io
